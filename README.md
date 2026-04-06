@@ -43,7 +43,6 @@ Konten dalam website ini disusun berdasarkan berbagai sumber umum dan bertujuan 
 ## 👤 Author
 
 **Agus Satria Adhitama**
-📅 2026
 
 ---
 
